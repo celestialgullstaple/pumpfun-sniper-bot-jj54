@@ -1,4 +1,4 @@
-# 
+# updated pump.fun sniper bot | liquidity-sniping + sandwich-attack-execution offers the most advanced pump.fun sniper bot, with liquidity-sniping and sandwich-attack-execution.
 
 
 
